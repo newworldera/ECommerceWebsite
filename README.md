@@ -39,10 +39,13 @@ Telegram-https://t.me/+t73Q26ORYWRkYWQ1
 Whatsapp- https://whatsapp.com/channel/0029VafLdr6EawdzpspHgb0O
 
 # Output 1
-![Screenshot 2024-08-09 051915](https://github.com/user-attachments/assets/c32b0729-670e-4af5-8761-9b08620b90f5)
+![Screenshot 2024-08-09 051915](https://github.com/user-attachments/assets/776bffaa-76ae-4a39-9bf6-3d3186177d6c)
+
 
 # Output 2
-![Screenshot 2024-08-09 051856](https://github.com/user-attachments/assets/32e10322-718f-4d3a-a026-1dffafcc0649)
+![Screenshot 2024-08-09 051856](https://github.com/user-attachments/assets/787baf20-4bf3-4e23-a007-b15ce5d8da83)
+
 
 # Output 3
-![Screenshot 2024-08-09 052012](https://github.com/user-attachments/assets/7266db12-e63e-48ed-97da-f1b8c8073842)
+![Screenshot 2024-08-09 052012](https://github.com/user-attachments/assets/2115bb05-a8ce-4a2e-b84c-4904c295fde6)
+
